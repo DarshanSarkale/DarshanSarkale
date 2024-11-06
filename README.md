@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **darshansarkale098@gmail.com**
 
-- 📄 Know about my experiences [https://darshansarkale.github.io/images/resume/Darshan%20Sarkale%20Resume.pdf](https://darshansarkale.github.io/images/resume/Darshan%20Sarkale%20Resume.pdf)
+- 📄 Know about my experiences on [LinkedIn](https://www.linkedin.com/in/darshan-sarkale98/)
 
 - ⚡ Fun fact **When not immersed in data analytics or crafting solutions, I find joy in music🎶—playing keyboard and cajon (clapbox). And when not making melodies, I'm making waves🏊 in the water! I'm also an avid swimmer, finding solace and rejuvenation in the pool.**
 
